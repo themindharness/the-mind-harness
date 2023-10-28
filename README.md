@@ -1,1 +1,0 @@
-# themindharness.github.io
